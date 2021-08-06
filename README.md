@@ -6,7 +6,7 @@
 
 - 👯 I’m looking to collaborate on **data analysis related to political science**
 
-- 📝 I regularly write articles on [international relations, Russia, Middle East](international relations, Russia, Middle East)
+- 📝 I regularly write articles on [international relations, Russia, Middle East]
 
 - 📫 How to reach me **eliserosediana@gmail.com**
 
